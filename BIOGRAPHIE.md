@@ -1,0 +1,5 @@
+- 👋 Salut, je suis Soan.
+- 👀 Je suis interresé par l'aviation, et tout l'environnement de la technologie.
+- 🌱 Je suis actuellement dans mes études.
+- 💞️ I’m looking to collaborate on ...
+- 📫 Pour me contacter par mail : ssoan.albert@gmail.com
